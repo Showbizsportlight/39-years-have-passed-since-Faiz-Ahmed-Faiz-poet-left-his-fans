@@ -1,0 +1,2 @@
+# 39-years-have-passed-since-Faiz-Ahmed-Faiz-poet-left-his-fans
+It has been 39 years since Faiz Ahmed Faiz poet, the famous revolutionary poet of Urdu literature, left his fans. Let’s have a look:   While Faiz Ahmed Faiz raised his voice for the rights of people in his poetry, his ghazals and poems also gained international fame. https://actingexcellent.com/39-year-passed-since-faiz-ahmed-faiz-poet-left/ 
